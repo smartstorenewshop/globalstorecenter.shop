@@ -1,0 +1,1 @@
+# globalstorecenter.shop
